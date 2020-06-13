@@ -1,2 +1,2 @@
-# profile
-Brenton Forrest's Profile
+# Brenton Forrest's Profile
+Brenton Forrest
